@@ -1,1 +1,0 @@
-# kazan-art.github.io
